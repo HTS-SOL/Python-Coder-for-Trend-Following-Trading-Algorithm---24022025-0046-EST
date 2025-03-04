@@ -1,0 +1,1 @@
+# Python-Coder-for-Trend-Following-Trading-Algorithm---24022025-0046-EST
